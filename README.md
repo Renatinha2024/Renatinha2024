@@ -1,0 +1,3 @@
+- 👋 Oii, sou a Renata
+- 👀 Estou interessada em realizar o que for necessário para receber nota.
+- 💞️ Bye
